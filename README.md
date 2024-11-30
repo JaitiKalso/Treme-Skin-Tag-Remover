@@ -1,6 +1,6 @@
 ### Treme Skin Tag Remover - The Safe Choice for Skin Health!
 
-**ঔৣ☬✞Product name: Vigorawize**
+**ঔৣ☬✞Product name: Treme Skin Tag Remover**
 
 **ঔৣ☬✞Rating : ★★★★★ (5.0)**
 
